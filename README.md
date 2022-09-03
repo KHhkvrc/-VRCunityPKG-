@@ -1,4 +1,4 @@
-<h2 align="center">🌸Ҝ卄🌸</h2>
+
 <div>
  <p><img align="left" alt="gif" src="https://c.tenor.com/pZFufk9i2w8AAAAC/purple-aesthetic.gif" width="1000" height="290" /></p>
  <br>
